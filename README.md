@@ -6,9 +6,9 @@ Chuyên  cung cấp các thiết bị điện, điện tử , điện thông min
 
 - <a href="http://sangtao88.vn/">Shop Sáng Tạo 88</a> là nơi bạn có thể đến để chọn cho mình một món đồ cá nhân, một quà tặng độc đáo, đồ chơi công nghệ, sản phẩm sáng tạo cực kỳ thông minh để dành tặng cho bạn bè, người thân hoặc để giúp ích cho chính bạn trong công việc, sinh hoạt,….
 
-<a href="http://sangtao88.vn/">http://www.sangtao88.vn</a> là website với đầy đủ nội dung chi tiết về các mặt hàng mà <a href="http://sangtao88.vn/">Shop Sáng Tạo 88</a> cung cấp, giúp bạn dễ dàng tiếp cận với các sản phẩm mà không cần mất nhiều thời gian di chuyển. Với hình ảnh chân thực của sản phẩm cùng hướng dẫn chi tiết của chúng tôi, bạn sẽ được tận hưởng cảm giác mua sắm ngay tại nhà, lựa chọn sản phẩm yêu thích ngay trên website:  <a href="http://sangtao88.vn/">http://www.sangtao88.vn</a>
+Sangtao88 là website với đầy đủ nội dung chi tiết về các mặt hàng mà <a href="http://sangtao88.vn/">Shop Sáng Tạo 88</a> cung cấp, giúp bạn dễ dàng tiếp cận với các sản phẩm mà không cần mất nhiều thời gian di chuyển. Với hình ảnh chân thực của sản phẩm cùng hướng dẫn chi tiết của chúng tôi, bạn sẽ được tận hưởng cảm giác mua sắm ngay tại nhà, lựa chọn sản phẩm yêu thích ngay trên website
 
-<a href="http://sangtao88.vn/">http://www.sangtao88.vn</a> được thiết lập như một kênh phân phối bán buôn, bán lẻ  online nhằm cung cấp tới mọi đối tượng từ cá nhân đến tập thể với dịch vụ bán hàng tốt nhất, giá cả cạnh tranh nhất có thể.
+Sangtao88 được thiết lập như một kênh phân phối bán buôn, bán lẻ  online nhằm cung cấp tới mọi đối tượng từ cá nhân đến tập thể với dịch vụ bán hàng tốt nhất, giá cả cạnh tranh nhất có thể.
 
 Các sản phẩm mà <a href="http://sangtao88.vn/">Shop Sáng Tạo 88</a> cung cấp: sangtao88.vn
 
@@ -26,7 +26,7 @@ Các sản phẩm mà <a href="http://sangtao88.vn/">Shop Sáng Tạo 88</a> c
 
 - <a href="http://sangtao88.vn/19-may-cong-cu.html">Các loại máy công cụ đa năng</a>,<a href="http://sangtao88.vn/24-thiet-bi-do-luong.html"> thiết bị đo lường</a>,….
 
-- <a href="http://sangtao88.vn/">Sản phẩm sáng tạo</a>
+
 
 - Dịch vụ: Sửa chữa – làm thêm điều khiển cửa cuốn
 <h2>Hãy đến với <a href="http://sangtao88.vn/">Shop Sáng Tạo 88 </a>để trải nghiệm sự thú vị của công nghệ!</h2>
