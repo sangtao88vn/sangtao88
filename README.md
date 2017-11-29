@@ -26,7 +26,7 @@ Các sản phẩm mà <a href="http://sangtao88.vn/">Shop Sáng Tạo 88</a> c
 
 - <a href="http://sangtao88.vn/19-may-cong-cu.html">Các loại máy công cụ đa năng</a>,<a href="http://sangtao88.vn/24-thiet-bi-do-luong.html"> thiết bị đo lường</a>,….
 
-
+- <a href="http://sangtao88.vn/can-tieu-ly.html"> cân tiểu ly</a>
 
 - Dịch vụ: Sửa chữa – làm thêm điều khiển cửa cuốn
 <h2>Hãy đến với <a href="http://sangtao88.vn/">Shop Sáng Tạo 88 </a>để trải nghiệm sự thú vị của công nghệ!</h2>
